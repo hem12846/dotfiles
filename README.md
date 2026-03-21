@@ -1,1 +1,1 @@
-my progect is to open my rice
+my project is to open my rice
